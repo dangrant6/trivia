@@ -1,1 +1,1 @@
-# w101 trivia answers
+# answers any  wizard101 questions
